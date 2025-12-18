@@ -1,0 +1,2 @@
+# pengumpulan_Tugas12_Rakan_Gustian_Muhammad_Akbar_301250020
+bismillah,izin mengumpulkan tugas dan laprak 12
